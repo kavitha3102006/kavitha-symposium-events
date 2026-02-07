@@ -68,7 +68,7 @@ It provides a platform for students to *learn, compete, collaborate, and showcas
 ---
 
 ## 📍 Venue
-Auditorium
+*Auditorium,*
 *Surya Group of Institution,Vikiravandi*
 
 ---
